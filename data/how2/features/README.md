@@ -1,1 +1,1 @@
-# How2 files
+# How2 features
